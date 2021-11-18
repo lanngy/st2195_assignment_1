@@ -1,0 +1,1 @@
+This are the assignments of the first Live Session Preparations.
